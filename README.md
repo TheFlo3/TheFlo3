@@ -1,3 +1,1 @@
-Is my Code good?: No
-
-Will it work?: Maybe
+Some random Dude from Austria
