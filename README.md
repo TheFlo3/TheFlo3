@@ -1,1 +1,1 @@
-Some random Dude from Austria
+Student at the Higher Technical College of Information Technologie Salzburg.
